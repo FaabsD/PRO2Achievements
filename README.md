@@ -7,4 +7,4 @@
 ##### Ik volg de opleiding Media- en Gamedeveloper leerjaar 1 aan het Mediacollege Amsterdam.
 ###### Ik ga elke dag op de fiets naar school.
 
-Heh
+
